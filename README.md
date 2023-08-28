@@ -1,4 +1,5 @@
 # wiko
 way to improve btc
-dwdwdwdw
+tak to bude
 fefefeef
+dako ako!!"
